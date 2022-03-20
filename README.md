@@ -53,4 +53,8 @@ Se você puder encontrar em si mesmo para conceder meu último desejo, creme-me 
 
 Acabei de tirar a vida da minha mãe. Estou muito chateado por ter feito isso. No entanto, sinto que se existe um céu, ela está definitivamente lá agora, e se não houver vida depois, eu a aliviei de seu sofrimento aqui na terra.
 
-O ódio intenso que sinto por meu pai é indescritível. Minha mãe deu a esse homem os 25 melhores anos de sua vida e porque ela finalmente aguentou o suficiente de suas surras, humilhações, degradação e tribulações que tenho certeza que ninguém além dela e ele jamais saberá - deixá-lo. Ele escolheu tratá-la como uma vadia com quem você iria para a cama, aceitar seus favores e depois jogar uma ninharia em troca. Lamento sinceramente que esta seja a única maneira que encontrei para aliviar o sofrimento dela, mas acho que foi o melhor. Que não haja dúvida em sua mente de que eu amei a mulher com todo o meu coração. Se existe um Deus, que ele entenda minhas ações e me julgue de acordo.
+O ódio intenso que sinto por meu pai é indescritível. Minha mãe deu a esse homem os 25 melhores anos de sua vida e porque ela finalmente aguentou o suficiente de suas surras, humilhações, degradação e tribulações que tenho certeza que ninguém além dela e ele jamais saberá - deixá-lo. 
+
+Ele escolheu tratá-la como uma vadia com quem você iria para a cama, aceitar seus favores e depois jogar uma ninharia em troca. 
+
+Lamento sinceramente que esta seja a única maneira que encontrei para aliviar o sofrimento dela, mas acho que foi o melhor. Que não haja dúvida em sua mente de que eu amei a mulher com todo o meu coração. Se existe um Deus, que ele entenda minhas ações e me julgue de acordo.
