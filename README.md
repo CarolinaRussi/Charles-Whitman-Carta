@@ -15,6 +15,7 @@ Foi depois de muito pensar que decidi matar minha esposa, Kathy, esta noite, dep
 
 Motivos semelhantes me levaram a tirar também a vida de minha mãe. Eu não acho que a pobre mulher tenha desfrutado a vida como ela tem direito. Ela era uma jovem simples que se casou com um homem muito possessivo e dominador. Toda a minha vida como um menino até que eu fugi de casa para me juntar ao Corpo de Fuzileiros Navais
 
+
 # (Neste ponto da nota, Whitman interrompeu sua escrita, retomando-a mais tarde naquela mesma noite)
 
 amigos
@@ -47,9 +48,6 @@ Needville, Texas
 
 Se você puder encontrar em si mesmo para conceder meu último desejo, creme-me depois da autópsia.
 
-*
-*
-*
 
 # Whitman também deixou uma nota manuscrita ao lado do corpo de sua mãe:
 
